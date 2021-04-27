@@ -1,6 +1,5 @@
-# BIU BIU
-## Yutong Li
-
+# Yutong Li 
+## yutongl@princeton.edu 
 ### Work Experience
 **pupu**
 - mimi
