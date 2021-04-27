@@ -1,4 +1,4 @@
-### Yutong Li 
+### **Yutong Li** 
 yutongl@princeton.edu   (609) 865-7294
 
 ## EDUCATION 
